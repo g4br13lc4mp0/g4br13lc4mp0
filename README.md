@@ -7,9 +7,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 
-gabriel.campo@escola.pr.gov.br 
-
-![](https://static.hupishop.com.br/public/hupibikes/imagens/produtos/media/quadro-hupi-naja-v9-preto-roxo-gancheira-669f9b3c91c2b.jpg)
+gabriel.campo@escola.pr.gov.
 
 
 
