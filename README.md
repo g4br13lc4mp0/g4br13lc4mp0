@@ -7,7 +7,8 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 
-gabriel.campo@escola.pr.gov.br
+gabriel.campo@escola.pr.gov.br ![https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRXlhqcp0GwRAo8l3BgqaZWtrq-9ozfOgDCug&s](link)
+
 
 
 
